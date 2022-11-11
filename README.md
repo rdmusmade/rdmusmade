@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @rdmusmade (Er. Rupesh D. Musmade.)
+- 👀 I’m interested in Automation for Civil Engineers.
+- 🌱 I’m currently learning Excel.
+- 💞️ I’m looking to collaborate on Excel Project for Civil Engineers
+- 📫 How to reach me +91 - 8484 86 6868
+- mail me at rdmusmade@gmail.com
+- From Rahuri, Ahmednagar, Maharastra, India.
